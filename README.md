@@ -1,6 +1,11 @@
 # xslook
 星速官网-星速浏览器 --xslook.com
 
+xslook.com 维护中!！!！
+xslook.com 维护中!！!！
+xslook.com 维护中!！!！
+
+新地址:
 官网备用地址:https://www.xingsu666.com/
 官网备用地址:https://www.xingsu666.com/
 官网备用地址:https://www.xingsu666.com/
@@ -32,6 +37,11 @@
 
 星速浏览器功能：内置广告拦截功能净化您的浏览环境，让您摆脱无休止的在线广告的干扰。它还能屏蔽挖矿等恶意软件，并帮助加快页面加载。
 
+xslook.com 维护中!！!！
+xslook.com 维护中!！!！
+xslook.com 维护中!！!！
+
+新地址:
 官网备用地址:https://www.xingsu666.com/ 
 官网备用地址:https://www.xingsu666.com/
 官网备用地址:https://www.xingsu666.com/
