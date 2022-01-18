@@ -2,6 +2,11 @@
 星速官网-星速浏览器 --xslook.com
 
 官网备用地址:https://www.xingsu666.com/
+官网备用地址:https://www.xingsu666.com/
+官网备用地址:https://www.xingsu666.com/
+
+
+
 
 <img width="384" alt="图片" src="https://user-images.githubusercontent.com/83153586/115981872-9adb3980-a5c9-11eb-8ca8-dea6b7018da7.png">
 
@@ -19,6 +24,8 @@
 
 星速浏览器功能：内置广告拦截功能净化您的浏览环境，让您摆脱无休止的在线广告的干扰。它还能屏蔽挖矿等恶意软件，并帮助加快页面加载。
 
+官网备用地址:https://www.xingsu666.com/ 
+官网备用地址:https://www.xingsu666.com/
 官网备用地址:https://www.xingsu666.com/
 
 下载： 星速浏览器PC版：V1.1.1 上线时间：2021年4月20日 下载地址：https://dl.shangqiuzhijia.com/xingsu/O52FEG/pc/xingsuUpdate.exe 软件大小：79 MB
