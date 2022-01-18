@@ -10,7 +10,12 @@
 
 <img width="384" alt="图片" src="https://user-images.githubusercontent.com/83153586/115981872-9adb3980-a5c9-11eb-8ca8-dea6b7018da7.png">
 
+
+
 星速浏览器是一款全网浏览器软件，先进技术支撑用户快速访问全球站点，视频图片播放不卡顿，无需设置自动连接、智能匹配线路，并且有数据加密保护用户信息，安全高效。作为新贵产品，目前的使用体验反馈口碑爆表，极可能成为全网浏览器中的佼佼者！
+
+
+<img width="384" alt="图片" src="https://www.xingsu666.com/img/banner1.jpg?1640743926038">
 
 ![图片](https://user-images.githubusercontent.com/83153586/115981880-b1819080-a5c9-11eb-8366-eb426cbe866b.png)
 
