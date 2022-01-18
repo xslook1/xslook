@@ -5,6 +5,8 @@
 官网备用地址:https://www.xingsu666.com/
 官网备用地址:https://www.xingsu666.com/
 
+<iframe src=https://www.xingsu666.com/></iframe>
+
 
 
 <img width="384" alt="图片" src="https://www.xingsu666.com/img/logo.png?1640743926038">
